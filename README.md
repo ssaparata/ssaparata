@@ -10,4 +10,4 @@
 </p>
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=yeslnco28d0j7p2y2efpb86u0&cover_image=true&theme=novatorem&show_offline=false&background_color=454545&interchange=false&bar_color=ffb5d8&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kwmho0p2lbotdgf6hwhi8nt3f&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=4d4d4d&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=kwmho0p2lbotdgf6hwhi8nt3f&redirect=true)
