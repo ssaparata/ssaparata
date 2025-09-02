@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://komarev.com/ghpvc/?username=2-time&label= ISLAND1 &color=DFC081&style=water"> 
+<img src="https://komarev.com/ghpvc/?username=2-time&label= ISLAND2 &color=DFC081&style=water"> 
 
 
 one step closer.
