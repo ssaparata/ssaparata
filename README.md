@@ -2,6 +2,7 @@
 
 <img src="https://komarev.com/ghpvc/?username=2-time&label= ISLAND1 &color=DFC081&style=water"> 
 
+
 one step closer.
 
   <a href="https://guns.lol/seildirectory"><img src="https://i.postimg.cc/MKJFCbV8/Untitled61-20250902195903.png" width="500" height="auto" align="auto"></img></a>
@@ -9,7 +10,13 @@ one step closer.
 **saparata**  *ou*  wish.
 <p align="center">
     <img width="300" src="" alt="">
- wip : )
+
+[atabook](https://seildirect.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[rentry](https://rentry.co/seildirector)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[prns](https://en.pronouns.page/@directory)
+
+work in progress.  come back later : D
+
 </p>
 
 
