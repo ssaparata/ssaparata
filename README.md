@@ -3,7 +3,10 @@
 <img src="https://komarev.com/ghpvc/?username=2-time&label= ISLAND2 &color=DFC081&style=water"> 
 
 
-one step closer.
+am i strong enough to guide
+
+
+my heart away from it all?
 
   <a href="https://guns.lol/seildirectory"><img src="https://i.postimg.cc/MKJFCbV8/Untitled61-20250902195903.png" width="500" height="auto" align="auto"></img></a>
 
@@ -15,7 +18,6 @@ one step closer.
 [rentry](https://rentry.co/SAPARATAH)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 [prns](https://en.pronouns.page/@directory)
 
-work in progress.  come back later : D
 
 </p>
 
