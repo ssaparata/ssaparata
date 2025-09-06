@@ -12,7 +12,7 @@ one step closer.
     <img width="300" src="" alt="">
 
 [atabook](https://seildirect.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-[rentry](https://rentry.co/seildirector)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[rentry](https://rentry.co/SAPARATAH)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 [prns](https://en.pronouns.page/@directory)
 
 work in progress.  come back later : D
