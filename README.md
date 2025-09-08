@@ -2,21 +2,20 @@
 
 <img src="https://komarev.com/ghpvc/?username=2-time&label= ISLAND2 &color=DFC081&style=water"> 
 
+ㅤㅤㅤ
+ㅤㅤㅤ
 
-am i strong enough to guide
+  <a href="https://guns.lol/seildirectory"><img src="https://i.postimg.cc/MKJFCbV8/Untitled61-20250902195903.png" width="500" height="auto" align="left"></img></a>
 
-
-my heart away from it all?
-
-  <a href="https://guns.lol/seildirectory"><img src="https://i.postimg.cc/MKJFCbV8/Untitled61-20250902195903.png" width="500" height="auto" align="auto"></img></a>
-
+[send a message](https://seildirect.atabook.org/)ㅤㅤㅤ
+[rentry](https://rentry.co/SAPARATAH)ㅤㅤㅤ
+[prns](https://en.pronouns.page/@directory)
+---
 **saparata**  *ou*  wish.
+
+nameself / any thang : O
 <p align="center">
     <img width="300" src="" alt="">
-
-[atabook](https://seildirect.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-[rentry](https://rentry.co/SAPARATAH)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-[prns](https://en.pronouns.page/@directory)
 
 
 </p>
