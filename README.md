@@ -8,6 +8,8 @@
 ---
 **saparata**  *ou*  wish.
 
+ also me ⸻> [main](https://github.com/seildirector) [stupid](https://github.com/coullahan) [EVIL](https://github.com/nezoshokii)
+
 nameself / any thang : O
 <p align="center">
     <img width="300" src="" alt="">
