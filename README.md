@@ -5,11 +5,12 @@
 ㅤㅤㅤ
 ㅤㅤㅤ
 
-  <a href="https://guns.lol/seildirectory"><img src="https://i.postimg.cc/MKJFCbV8/Untitled61-20250902195903.png" width="500" height="auto" align="left"></img></a>
+<a href="https://guns.lol/seildirectory"><img src="https://i.postimg.cc/MKJFCbV8/Untitled61-20250902195903.png" width="500" height="auto" align="left"></img></a>
 
-[send a message](https://seildirect.atabook.org/)ㅤㅤㅤ
+[send a message!](https://seildirect.atabook.org/)ㅤㅤㅤ
 [rentry](https://rentry.co/SAPARATAH)ㅤㅤㅤ
 [prns](https://en.pronouns.page/@directory)
+
 ---
 **saparata**  *ou*  wish.
 
