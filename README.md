@@ -6,7 +6,7 @@
 [send a message](https://seildirect.atabook.org/)ㅤㅤ[rentry](https://rentry.co/SAPARATAH)ㅤㅤ[prns](https://en.pronouns.page/@directory)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
 
 ---
-**saparata**  *ou*  wish.
+**saparata**  *ou*  ine
 
 also me ⸻> [main](https://github.com/seildirector) [stupid](https://github.com/coullahan) [EVIL](https://github.com/nezoshokii)
 
