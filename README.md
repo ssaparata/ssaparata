@@ -6,11 +6,11 @@
 [send a message](https://seildirect.atabook.org/)ㅤㅤ[rentry](https://rentry.co/SAPARATAH)ㅤㅤ[prns](https://en.pronouns.page/@directory)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
 
 ---
-**saparata**  *ou*  ine
+**saps**  *or*  ine
 
 also me ⸻> [main](https://github.com/seildirector) [spam](https://github.com/ruleroftheria) [EVIL](https://github.com/nezoshokii)
 
-nameself / any thang : O
+im offtab very often,  w2i at all times
 <p align="center">
     <img width="300" src="" alt="">
 </p>
