@@ -1,12 +1,12 @@
 <div align="center">
 
   <a href="https://x.com/kawgetsu/status/1962908055957602729/photo"><img src="https://i.postimg.cc/DfMmR4Lw/image.png" width="400" height="auto" align="left"></img></a> <br>
-[send a message](https://seildirect.atabook.org/)ㅤㅤ[rentry](https://rentry.co/SAPARATAH)ㅤㅤ[prns](https://en.pronouns.page/@directory)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
+[**send a message**](https://seildirect.atabook.org/)ㅤㅤ[rentry](https://rentry.co/SAPARATAH)ㅤㅤ[prns](https://en.pronouns.page/@directory)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
 
 ---
 **saps**  *or*  ine <br>
-also me ⸻> [main](https://github.com/seildirector) [spam](https://github.com/ruleroftheria) [EVIL](https://github.com/nezoshokii) <br>
-im offtab very often,  w2i at all times <br>
+alter egos ⸻> [main](https://github.com/seildirector) [spam](https://github.com/ruleroftheria) [EVIL](https://github.com/nezoshokii) <br>
+im offtab often,  **w2i** at all times <br>
 <img src="https://komarev.com/ghpvc/?username=2-time&label= ISLAND2 &color=ffffff&style=water" align="center"> <br>
 <p align="center">
     <img width="300" src="" alt="">
