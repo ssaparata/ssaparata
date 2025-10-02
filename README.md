@@ -1,7 +1,7 @@
 <div align="center">
 
   <a href="https://x.com/kawgetsu/status/1962908055957602729/photo"><img src="https://i.postimg.cc/DfMmR4Lw/image.png" width="400" height="auto" align="left"></img></a> <br>
-[**send a message**](https://seildirect.atabook.org/)ㅤㅤ[rentry](https://rentry.co/SAPARATAH)ㅤㅤ[prns](https://en.pronouns.page/@directory)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
+[**send a message**](https://sapsarata.atabook.org/)ㅤㅤ[rentry](https://rentry.co/SAPARATAH)ㅤㅤ[prns](https://en.pronouns.page/@directory)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
 
 ---
 **saps**  *or*  ine <br>
