@@ -7,7 +7,7 @@
 
 ---
 **saps**  *or*  ine <br>
-alter egos ⸻> [main](https://github.com/fluidxon) [spam](https://github.com/ruleroftheria) [EVIL](https://github.com/nezoshokii) <br>
+alter egos ⸻> [main](indirectory) [spam](https://github.com/ruleroftheria) [EVIL](https://github.com/nezoshokii) <br>
 im offtab often,  **w2i** at all times <br>
 <img src="https://komarev.com/ghpvc/?username=atervir&label= ISLAND2 &color=ffffff&style=water" align="center"> <br>
 <p align="center">
