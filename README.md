@@ -1,6 +1,5 @@
 <div align="center">
 
-[color my tree](https://colormytree.me/2025/01HJDRA4VHDG3K8TZX0BSDX6Y8)
 
   <a href="https://x.com/kawgetsu/status/1962908055957602729/photo"><img src="https://i.postimg.cc/DfMmR4Lw/image.png" width="400" height="auto" align="left"></img></a> <br>
 [**send a message**](https://sweetbroandhellajeff.atabook.org/)ㅤㅤ[rentry](https://rentry.co/motharata)ㅤㅤ[prns](https://en.pronouns.page/@directory)ㅤㅤ[guns.lol](https://guns.lol/seildirectory)
